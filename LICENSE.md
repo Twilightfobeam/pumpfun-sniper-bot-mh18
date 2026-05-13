@@ -1,4 +1,4 @@
-# 
+# high-frequency pump.fun sniper bot | gas-optimization + back-running offers the most advanced pump.fun sniper bot, with gas-optimization and back-running. Ideal for professional
 
 
 
